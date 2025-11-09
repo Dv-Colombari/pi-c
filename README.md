@@ -1,0 +1,1 @@
+Este projeto tem como objetivo principal falar da origem da lingua portuguesa , de como ela evoluiu de Latim e como ela se espalhou pelo mundo através das colonizações feitas por Portugal o qual é o local de origem da lingua
